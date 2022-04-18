@@ -7,4 +7,4 @@ Esse curso está sendo concluído através do Bootcamp Carrefour, disponibilizad
 Olá, bem vindo ao livro de receitas :wave:
 
 - Nhoque à Bolonhesa  
-- Lasanha
+- Lasanha Tradicional
