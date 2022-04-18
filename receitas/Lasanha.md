@@ -20,3 +20,4 @@
 4.  Faça esse processo até tudo terminar.
 5.  Aqueça o forno a 180º C durante 5 minutos.
 6.  Coloque a lasanha no forno de 20 a 30 minutos.
+7.  Retire do forno, aguarde esfriar um pouco e é só se servir.
